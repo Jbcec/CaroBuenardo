@@ -3,6 +3,8 @@
 ___
 :trophy: __REGLA__: El que rompe y no arregla antes de las 9am de la siguiente mañana, paga las :doughnut: facturas para el grupo.
 
+:warning: __GUNTHER SACATE LA GORRA, COMISARIO__
+
 :warning: __NO PULLEAR EN MASTER__
 ___
 
